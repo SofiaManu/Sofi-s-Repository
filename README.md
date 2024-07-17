@@ -1,2 +1,2 @@
-# Sofi-s-Repository
+# Sofia Manuella Dias de Sousa
 Atividade 02
